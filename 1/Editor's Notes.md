@@ -1,4 +1,3 @@
-## Department
 # Editor's Notes
 By Marcus Pan
 
