@@ -16,6 +16,9 @@ And my final note is this:
 **Happy New Year!**
 
 Enjoy your holiday season…
+
 Sincerely,
+
 Marcus Pan
+
 Editor-In-Chief
