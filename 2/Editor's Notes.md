@@ -18,5 +18,7 @@ And my final note is this:
 Enjoy your holiday season…
 
 Sincerely,
-  Marcus Pan
-  Editor-In-Chief
+
+Marcus Pan
+
+Editor-In-Chief
