@@ -2,5 +2,3 @@
 Editor's Notes
 
 Contributions
-
-(edited)
